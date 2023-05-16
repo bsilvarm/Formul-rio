@@ -1,2 +1,0 @@
-# Formul-rio
-Trabalho
